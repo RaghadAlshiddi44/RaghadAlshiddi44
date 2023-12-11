@@ -6,6 +6,13 @@
 
 New
 
+Hi David,
+
+Please find attached the Operation IDs for the domains submitted today. 
+
+Beast Regards,
+
+
 6671181930840758054
 14640422594210558720
 14925728997426973402
